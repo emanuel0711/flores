@@ -1,3 +1,3 @@
 # Repositório sobre Flores
-![image](https://github.com/user-attachments/assets/7fc4352e-4f8e-4656-a3a0-e9dc501765a0)
+![image](https://github.com/user-attachments/assets/96dfb903-4616-4109-96ee-82f52a28a398)
 
